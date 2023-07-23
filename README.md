@@ -1,1 +1,1 @@
-# qiqi.io
+# qiqi.com
